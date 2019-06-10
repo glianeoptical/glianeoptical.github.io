@@ -1,1 +1,0 @@
-# glianeoptical.github.io
